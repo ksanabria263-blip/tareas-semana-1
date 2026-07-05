@@ -4,5 +4,5 @@ lengua
 catedra de la paz
 sociales 
 artistica 
-EXPOSICION TECNICA0
-FISICA , EVALUACION
+FNE8GJIR
+  CGABFJKABFURJG
